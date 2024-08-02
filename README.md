@@ -1,4 +1,3 @@
-# curriculo
 # NICOLE BARNACK MOLINARI 
 
 ## RESUMO:
