@@ -19,9 +19,9 @@
 - **Cabeamento de Sala**: Experiência em instalação e organização de cabeamento
 
 **Competências**
-- **Línguas**:
+- **Idiomas**:
   - Português: Fluente
-  - Inglês: Avançado
+  - Inglês: Avançado - Fluente
   - Espanhol: Básico
 
 **Certificações**
