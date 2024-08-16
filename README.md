@@ -42,5 +42,5 @@
 - Comprometimento com prazos e qualidade.
 
 **Objetivo Profissional**
-Busco uma oportunidade para aplicar e desenvolver minhas habilidades em um ambiente desafiador. Estou comprometida em entregar resultados de alta qualidade, aprender continuamente e contribuir de maneira significativa para a equipe. Meu foco é sempre buscar soluções eficientes e inovadoras, com um forte senso de responsabilidade e dedicação.
+- Busco uma oportunidade para aplicar e desenvolver minhas habilidades em um ambiente desafiador. Estou comprometida em entregar resultados de alta qualidade, aprender continuamente e contribuir de maneira significativa para a equipe. Meu foco é sempre buscar soluções eficientes e inovadoras, com um forte senso de responsabilidade e dedicação.
 
